@@ -1,1 +1,0 @@
-# divaa.github.io
